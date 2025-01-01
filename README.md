@@ -1,6 +1,6 @@
 ### Hi there
 
-I'm Lusine, Product Manager at Picsart eager to make the world better place to live.
+I'm Lusine, Senior Product Manager at RPM eager to make the world a better place to live.
 
 ##### Get in touch
 
